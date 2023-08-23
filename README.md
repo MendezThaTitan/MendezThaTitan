@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @MendezThaTitan
 - 👀 I have no knowledge about anything
 - 🌱 I’m currently looking for an amazing & humble teacher
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I know absolutely nothing but im intrested in knowing how to speak digital
 - 📫 How to reach me ...mendezthatitan@gmail.com
 
 <!---
